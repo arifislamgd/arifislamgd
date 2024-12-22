@@ -10,7 +10,7 @@ Why Work With Me?
 ✔ Client-Focused Service – Your satisfaction is my top priority. 
 ✔ Timely Delivery – I value your time and always deliver on schedule. 
 
-Skills: Logo Design / Flyers & Brochures Design / Banners & Social Media Graphics / Business Identity Design / Corporate Branding / Image Retouching / YouTube Thumbnail Design / Motion Graphics/
+Skills: Logo Design / Flyers & Brochures Design / Banners & Social Media Graphics / Business Identity Design / Corporate Branding / Image Retouching / YouTube Thumbnail Design / Motion Graphics 
 
 - 🔭 I’m currently working on Upwork, Fiverr, Freelancer, Youtube 
 - 🌱 I’m currently learning Motion Graphics 
