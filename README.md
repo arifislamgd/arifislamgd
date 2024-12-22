@@ -3,7 +3,21 @@
 ### Hi there 👋, I'm Arif Islam
 #### Creative Graphics Design Specialist | Branding Expert
 
-Hello, I am Arif Islam, a certified and experienced Graphics Designer. Working as a Professional graphics designer and Photoshop and Illustrator expert since 2015 and completed over 400 projects for 150 clients at various marketplaces.
+Hi, I’m Arif Islam! I’m a Certified Graphics Designer with extensive experience in Photoshop and Illustrator. Since 2015, I’ve been helping businesses and individuals elevate their brand identity through creative and impactful designs.
+
+Why Work With Me? 
+✔ Creative Excellence – I turn your ideas into visually stunning designs. 
+✔ Client-Focused Service – Your satisfaction is my top priority. 
+✔ Timely Delivery – I value your time and always deliver on schedule. 
+
+My Services: 
+✅ Logo Design 
+✅ Flyers & Brochures 
+✅ Banners & Social Media Graphics 
+✅ Business Identity Design 
+✅ Image Retouching
+✅ Youtube Thumbnail Design
+✅ Billboard Design
 
 
 Skills: Graphics Design /  Digital Media / Corporate Identity / After Effects /  Image Editing/ Corporate Branding/ Print Design/ Motion Graphics/ Logo Design/ Social Media Design
